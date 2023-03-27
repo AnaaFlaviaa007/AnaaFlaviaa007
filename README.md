@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @AnaaFlaviaa007
-- 👀 eu tenho 15 anos, e meu interesse é me formar em direito. 
-sou capricorniana
-
+- 👀 eu tenho 15 anos, e meu interesse é me formar em direito 
+- sou capricorniana
+- amo sair com meu namorado e fofocar com as amigas
